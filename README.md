@@ -1,2 +1,2 @@
-# XiuXian-scientifically
+# 一心求长生，借助科学另类证道，一起愉快的修仙叭。
 科学修仙 &amp; 机械飞升
